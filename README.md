@@ -1,0 +1,2 @@
+# evil_American_and_righteous_centerCountry
+揭露和批判邪恶的美帝国主义
